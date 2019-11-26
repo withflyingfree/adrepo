@@ -7,4 +7,8 @@
 
 https://store.holytech.tech/aff.php?aff=2551
 
-网速还可以，不放心可以用其中的1元体验一周功能试一下，亲测
+网速还可以，不放心可以用其中的1元体验一周功能试一下，亲测。
+
+拥抱技术，与国际接轨，师夷长技以制夷！
+
+https://www.zhihu.com/question/28359224
